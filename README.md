@@ -18,10 +18,10 @@
 [**4**](https://drive.google.com/file/d/113gzA_mEFRzs0LqAAYcPg0QIojRJw9ud/view?usp=drivesd)
 
 
- [**3**](https://drive.google.com/file/d/10iOn3PDYyJlTMFdY36EBS4ChLGKvSAhL/view?usp=drivesdk)
+ [**3 derivarion of wave equestion of H**](https://drive.google.com/file/d/10iOn3PDYyJlTMFdY36EBS4ChLGKvSAhL/view?usp=drivesdk)
 
 
- [**2- derivarion of wave equestion**](https://drive.google.com/file/d/102FPlL8bPqc_-ucl7v3C4MPz65ymbBqr/view?usp=drivesdk)
+ [**2- derivarion of wave equestion of E**](https://drive.google.com/file/d/102FPlL8bPqc_-ucl7v3C4MPz65ymbBqr/view?usp=drivesdk)
 
 
 
